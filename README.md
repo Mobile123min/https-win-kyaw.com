@@ -1,1 +1,1 @@
-# https-win-kyaw.com
+# win-kyaw.com
